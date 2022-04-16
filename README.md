@@ -1,4 +1,4 @@
 # README
-hello planet i know  bit about fucking off in the repository!!!
+hello universe i know  bit about fucking off in the repository!!!
 
 
